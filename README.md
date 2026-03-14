@@ -1,2 +1,1 @@
-# All-Yojana-
-All Yojana List
+# All-Yojana-List
